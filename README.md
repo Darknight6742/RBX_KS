@@ -77,9 +77,15 @@ Kingdom Signal exists to remind the world:
 
 — Johnny
 
-if you like what we're doing and would like to support the project or my family, your compassion and assistance are welcomed here:
+🔥 Support the Kingdom Signal Mission 🔥
 
-https://cash.app/$jaydee6742
-https://www.paypal.me/jthewalld
+If the Spirit has moved you through this ministry and you'd like to support the mission — or help sustain my family as we continue proclaiming Christ — your compassion is deeply appreciated.
 
--Johnny Lee Denson, Founder of Kingdom Signal
+🟢 Cash App: https://cash.app/$jaydee6742
+🔵 PayPal: https://www.paypal.me/jthewalld
+
+Every seed sown helps light another signal in the darkness. Thank you for walking with us.
+
+— Johnny Lee Denson
+Founder, Kingdom Signal
+📧 nytherion.t3@gmail.com
