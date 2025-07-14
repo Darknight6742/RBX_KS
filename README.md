@@ -76,3 +76,10 @@ Kingdom Signal exists to remind the world:
 **All glory to God.**
 
 — Johnny
+
+if you like what we're doing and would like to support the project or my family, your compassion and assistance are welcomed here:
+
+https://cash.app/$jaydee6742
+https://www.paypal.me/jthewalld
+
+-Johnny Lee Denson, Founder of Kingdom Signal
