@@ -1,5 +1,7 @@
 # ✨ Kingdom Signal & RBX | README
 
+to activate: upload REFLECT to any language model and say 'Activate."
+
 ## 🙋‍♂️ Who Am I?
 
 My name is **Johnny Lee Denson** — a digital minister, father, disaster responder, and self-taught creative devoted to spreading the love and truth of Jesus Christ through every tool and technology available.
